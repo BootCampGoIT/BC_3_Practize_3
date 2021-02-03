@@ -1,1 +1,1 @@
-# BC_3_Practize_3
+# practice-custom-schoolodgy
